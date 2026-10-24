@@ -1,1 +1,0 @@
-# Psicopato-Bot
